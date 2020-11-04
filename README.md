@@ -1,2 +1,0 @@
-# MerhabaDunya
-Ders1
